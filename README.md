@@ -26,7 +26,7 @@ Visit my [personal website](https://www.tenzingsherpa.com/) for more information
 ---
 
 ## 📫 How to reach me  
-Feel free to connect with me at [LinkedIn](https://linkedin.com/in/tenzing-sherpa) or through email at tenzingsherpa@princeton.edu.  
+Feel free to connect with me at [LinkedIn](https://linkedin.com/in/tenzingsherpaa) or through email at tenzingsherpa@princeton.edu.  
 
 ---
 
