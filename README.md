@@ -2,7 +2,7 @@
 
 I am a sophomore at Princeton University, majoring in Computer Science with a Certificate in Neuroscience. My interests span artificial intelligence, cultural preservation, and leveraging technology to solve global challenges.  
 
-Visit my [personal website](https://bankofsherpa.com) for more information and detailed descriptions of my projects.  
+Visit my [personal website](https://www.tenzingsherpa.com/) for more information and detailed descriptions of my projects.  
 
 ---
 
